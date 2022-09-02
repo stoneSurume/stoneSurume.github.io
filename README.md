@@ -1,1 +1,0 @@
-# stoneSurume.github.io
